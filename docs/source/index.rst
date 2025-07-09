@@ -1,7 +1,7 @@
 How to Set Up WiFi on Your Canon Printer for Wireless Printing
 ==============================================================
 
-To set up WiFi on your Canon printer for wireless printing, access the printer’s control panel, select **Network Settings**, and choose **Wireless LAN Setup**. Connect to your Wi-Fi network by entering the password. Confirm the connection on both your printer and computer to enable seamless wireless printing anytime. **[Dial +1-801-878-6858 USA]**
+To set up WiFi on your Canon printer for wireless printing **[Dial +1-801-878-6858 USA]**, access the printer’s control panel, select **Network Settings**, and choose **Wireless LAN Setup**. Connect to your Wi-Fi network by entering the password. Confirm the connection on both your printer and computer to enable seamless wireless printing anytime. **[Dial +1-801-878-6858 USA]**
 
 `Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_
 
